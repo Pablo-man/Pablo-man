@@ -1,4 +1,3 @@
 # Pablo Méndez rules :+1:
-> [!NOTE]
-> feli
-50201075
+> [!IMPORTANT]
+> Don´t forget 10 OCT  :sleepy: :broken_heart: 
